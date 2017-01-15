@@ -1,5 +1,7 @@
 # 梁海 Liang Hai
 
+Multilingual font technician; phonetics/phonology enthusiast.
+
 I go by my family name, Liang /ljɑŋ/, unless you speak Chinese.
 
 - liang\*\*\*@gmail.com
@@ -25,3 +27,6 @@ I go by my family name, Liang /ljɑŋ/, unless you speak Chinese.
 - [Bēhance](https://behance.net/lianghai)
 - [Dribbble](https://dribbble.com/lianghai)
 - [TypeDrawers](http://typedrawers.com/profile/2413/lianghai)
+- [V2EX](https://www.v2ex.com/member/lianghai)
+- [Flickr](https://flickr.com/photos/liang-hai)
+- [500px](https://500px.com/lianghai)
