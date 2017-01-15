@@ -1,6 +1,6 @@
 # 梁海 Liang Hai
 
-I go by my family name, Liang, In English.
+I go by my family name, Liang /ljɑŋ/, unless you speak Chinese.
 
 - liang\*\*\*@gmail.com
 - +86-1860050\*\*\*\*
@@ -9,7 +9,7 @@ I go by my family name, Liang, In English.
 
 - [Twitter](https://twitter.com/lianghai)
 - [知乎](https://zhihu.com/people/lianghai)
-- (🤦🏻‍♂️ … 微信朋友圈: liang\*\*\*)
+- And the notorious 微信朋友圈 🤦🏻‍♂️: liang\*\*\*
 
 ## Moderately active
 
