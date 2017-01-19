@@ -8,6 +8,19 @@ I go by my family name, Liang /ljɑŋ/, unless you speak Chinese.
 - +86-1860050\*\*\*\*
 
 ## Active
+## Languages and scripts
+
+Preferred languages:
+
+- 汉语 (native), English (ILR 3 / CEFR C1)
+- हिंदी (ILR 1 / CEFR A2)
+
+Scripts I use or work on:
+
+- 汉字, Latin, देवनागरी
+- ગુજરાતી, বাংলা
+- བོད་, ਗੁਰਮੁਖੀ, ଓଡ଼ିଆ, తెలుగు, ಕನ್ನಡ, മലയാളം, தமிழ், සිංහල
+
 
 - [Twitter](https://twitter.com/lianghai)
 - [知乎](https://zhihu.com/people/lianghai)
