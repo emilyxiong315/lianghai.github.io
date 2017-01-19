@@ -1,3 +1,6 @@
+---
+title: Cyrillic Che
+---
 
 # Cyrillic Che in a Pinyin draft
 
