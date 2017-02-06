@@ -1,8 +1,8 @@
 # 梁海 Liang Hai
 
-Multilingual font technician; phonetics/phonology enthusiast.
+A deep conjunct of a multilingual font technician and a phonology enthusiast. Based in Beijing, China.
 
-I go by my family name, Liang /ljɑŋ/, unless you speak Chinese.
+I go by my surname Liang /ljɑŋ/, unless you speak Chinese.
 
 Contact me:
 
@@ -18,9 +18,9 @@ Preferred languages:
 
 Scripts I use or work on:
 
-- 汉字, Latin, देवनागरी
-- ગુજરાતી, বাংলা
-- བོད་, ਗੁਰਮੁਖੀ, ଓଡ଼ିଆ, తెలుగు, ಕನ್ನಡ, മലയാളം, தமிழ், සිංහල
+- 汉字 · Latin · देवनागरी
+- ગુજરાતી · বাংলা
+- ᠮᠣᠩᠭᠣᠯ · བོད་ · ਗੁਰਮੁਖੀ · ଓଡ଼ିଆ · తెలుగు · ಕನ್ನಡ · മലയാളം · தமிழ் · සිංහල
 
 ## Where to find me
 
