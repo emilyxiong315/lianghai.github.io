@@ -39,6 +39,8 @@ Moderately active:
 
 Inactive:
 
+- [Stack Overflow](https://stackoverflow.com/users/7603006)
+- [Wikipedia](https://en.wikipedia.org/wiki/User:梁海)
 - [LinkedIn](https://linkedin.com/in/lianghai)
 - [Glyphs Forum](https://forum.glyphsapp.com/users/lianghai)
 - [TypeDrawers](http://typedrawers.com/profile/2413/lianghai)
