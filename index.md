@@ -13,14 +13,14 @@ Contact me:
 
 Preferred languages:
 
-- 汉语 (native), English (ILR 3 / CEFR C1)
+- 漢語 (native), English (ILR 3 / CEFR C1)
 - हिंदी (ILR 1 / CEFR A2)
 
 Scripts I use or work on:
 
-- 汉字 · Latin · देवनागरी
-- ગુજરાતી · বাংলা
-- ᠮᠣᠩᠭᠣᠯ · བོད་ · ਗੁਰਮੁਖੀ · ଓଡ଼ିଆ · తెలుగు · ಕನ್ನಡ · മലയാളം · தமிழ் · සිංහල
+- 漢 · Latin · देवनागरी
+- ᠮᠣᠩᠭᠣᠯ · ગુજરાતી · বাংলা · မြန်မာ
+- བོད་ · ਗੁਰਮੁਖੀ · ଓଡ଼ିଆ · తెలుగు · ಕನ್ನಡ · മലയാളം · தமிழ் · සිංහල
 
 ## Where to find me
 
