@@ -7,7 +7,8 @@ I go by my surname Liang /ljɑŋ/, unless you speak Chinese.
 Contact me:
 
 - liang\*\*\*@gmail.com
-- +86-1860050\*\*\*\*
+- +86 186-0050-\*\*\*\* (China)
+- +1 650-686-\*\*\*\* (US)
 
 ## Languages and scripts
 
